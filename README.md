@@ -1,6 +1,3 @@
 
 
-
-
-
 my name is hung
